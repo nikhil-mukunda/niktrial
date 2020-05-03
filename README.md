@@ -1,3 +1,3 @@
 # niktrial
-
-NimAjji
+AllahHoAkbar
+Inkalabzindabad
